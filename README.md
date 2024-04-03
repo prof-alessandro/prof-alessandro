@@ -1,7 +1,7 @@
 ### Olá! Bem vindo ao meu perfil👋
-Boas vindas!
+Boas vindas!😒
 
-Sou Professor Graduado em Geografia - UNICENTRO.
+Sou Professor Graduado em Geografia - UNICENTRO.😍🌍
 
 Atuo como professor na [Alura](https://www.alura.com.br/)
 
